@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @StillSeeker1164
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning a lot of things
+- 📫 How to reach me Discord:StillSeeker#2354
+- 🏈 My hobbys is playig Fortnite and other games
